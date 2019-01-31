@@ -1,0 +1,1 @@
+I picked logical rhetoric. The top natural disasters in the 4 states where Chevron is present, logically explains the frequency of those disasters. Generally, Hurricane, floods, Storms are most common in coastal areas. 
